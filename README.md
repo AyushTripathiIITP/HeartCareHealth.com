@@ -24,7 +24,7 @@ https://github.com/AyushTripathiIITP/HeartCareHealth.com/assets/101452500/66de3c
 
 👤 **Ayush Tripathi | Vardhan Gacche | Chitraksh Dhingra | Hardik Singh**
 
-* Github: [@Iush3party](https://github.com/Iush3party) [Chitraksh-20](https://github.com/Chitraksh-20)
+* Github: [@Iush3party](https://github.com/Iush3party) [Chitraksh-20](https://github.com/Chitraksh-20) [hardik4555](https://github.com/hardik4555)
 * LinkedIn: [@https:\/\/www.linkedin.com\/in\/ayush-tripathi-aaa58a231\/](https://linkedin.com/in/https:\/\/www.linkedin.com\/in\/ayush-tripathi-aaa58a231\/)
 
 ## Show your support
